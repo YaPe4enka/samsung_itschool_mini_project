@@ -1,0 +1,1 @@
+# samsung_itschool_mini_project
